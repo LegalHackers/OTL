@@ -1,4 +1,4 @@
-"Legal Hackers" is a registered trademark (the "Mark") of Legal Hackers LLC. Legal Hackers 
+"Legal Hackers" (the "Mark") is a trademark of Legal Hackers LLC. Legal Hackers 
 hereby grants you a free, non-exclusive, worldwide, irrevocable, sublicensable, perpetual 
 right and license to use the Mark for non-commercial purposes. This license will 
 automatically terminate, and you shall cease to use it, if:
